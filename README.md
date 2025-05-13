@@ -57,7 +57,7 @@ Currently I am researching about [swap.pump.fun](https://swap.pump.fun/), so if 
 
 ## 📞 Contact Info
 
-### Telegram: [enlomy](https://t.me/enlomy)
+### Telegram: [Apollo](https://x.com/XWeFive)
 
 ## 🍵 Tip
 
